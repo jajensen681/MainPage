@@ -8,7 +8,8 @@
 ## Welcome
 
 - My name is Dr. Jacqueline Jensen-Vallin
-- Office Hours:
+- Office Hours: TBA during Summer 2018
+- email: jjensenvalli at lamar dot edu
 
 ## Daily schedule: Fall 2018
 
